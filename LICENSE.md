@@ -1,4 +1,4 @@
-#  
+#  secure Script for anime card collection is the best anime card collection Script, featuring no clip and undetectable. Safe and powerful for all your
 
 
 
